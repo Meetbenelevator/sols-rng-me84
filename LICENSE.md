@@ -1,4 +1,4 @@
-#  
+#  Experience sol's rng like never before with sol's rng hidden Script, the #1 Script. Includes infinite resources and auto-heal for unbeatable
 
 
 
